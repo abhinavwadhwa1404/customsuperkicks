@@ -59,3 +59,10 @@ Currently, as our founder (Me) pursues an MBA to build stronger strategies, fund
 
 We’re preparing for a **strong relaunch soon**, with better strategy, funding, and designs tailored for a **global audience**. Stay tuned and follow us on Instagram for updates, sneak peeks, and new drops.
 
+<br>
+<center>
+<img align="left" alt="AbhinavWadhwa | Instagram" width="22px" src="https://imgur.com/DvIDenb.jpg" />
+
+[instagram]: https://www.instagram.com/customsuperkicks/?igshid=YmMyMTA2M2Y%3D
+</center>
+
